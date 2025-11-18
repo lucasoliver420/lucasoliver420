@@ -1,5 +1,5 @@
 - 👽🖖 Seja Bem vindo 
-- 👀  instagram ➡ @lucasoliveiraa369
+- 👀  instagram ➡ @lucasferreira_mk
 
 <div align="center">
   <a href="https://instagram.com/lucasoliveiraa369/">
